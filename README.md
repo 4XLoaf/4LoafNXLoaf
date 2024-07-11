@@ -8,3 +8,6 @@
 ### ↶*ೃ✧˚. ❃ ↷ ˊ- I Love Clover / Pearl Hunting ¸.*☆*.¸⁭
 ## ➶-͙˚ ༘✶ 4x My Beloved *ੈ✩‧₊˚
 ## ˚₊· ͟͟͞͞➳❥ I LOVE MY POOKIES *ೃ༄
+## ♡ Socials ♡
+## ♡ Insta : Melly_Love_Artz ♡
+## ♡ YT : Melly_Love_Artz ♡
